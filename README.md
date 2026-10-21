@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-GALM030120HDGLYRA4
+GALM030120HDGLYRA4
